@@ -1,1 +1,0 @@
-# mantkuma.github.io
